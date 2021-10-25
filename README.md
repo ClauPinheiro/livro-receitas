@@ -4,7 +4,7 @@
 
 - Torta de Limão
 
-- Pavê
+- Strogonoff de Carne
 
   
 

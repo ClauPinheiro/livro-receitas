@@ -1,4 +1,4 @@
-# Torta de Limão 
+# Torta de Limão :lemon:
 
 ## Ingredientes
 
